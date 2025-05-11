@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me flameofhaven070@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I am super motivated.
+- ⚡ Fun fact: I am super Excited for ⚡.
 
 <!---
 Ankan-Ghosh7/Ankan-Ghosh7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
